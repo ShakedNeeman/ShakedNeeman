@@ -1,6 +1,6 @@
 Hello,
 
-my name is Shaked Neeman I am Second- year B.Sc. Computer science student at Afeka Academic College of Engineering with GPA of 86.
+my name is Shaked Neeman I am Third- year B.Sc. Computer science student at Afeka Academic College of Engineering with GPA of 86.
 
 Team player, Hard worker, Responsible, High motivation, Diligent, Creative, Loves to evolve and discover new things.
 
