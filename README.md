@@ -1,11 +1,7 @@
 Hello,
 
-my name is Shaked Neeman I am Third- year B.Sc. Computer science student at Afeka Academic College of Engineering with GPA of 86.
+My name is Shaked Neeman and I have a B.Sc. in Computer Science. I am a junior developer with 1+ years of experience.
+Seeking for a collaborative team role to further develop my skills and to contribute my
+expertise in multiple programming languages for the success of the company.
 
-Team player, Hard worker, Responsible, High motivation, Diligent, Creative, Loves to evolve and discover new things.
 
-I've performed a variety of roles and gained a broad range of knowledge and experience.
-My role in the IDF required specific skills and, more importantly, a professional fit for each role.
-I worked in roles that required a high level of organization, commitment, and perseverance,
-as well as creativity and mental flexibility, the ability to quickly respond to problems
-that arose in the field, meeting tight deadlines, and the ability to express and present myself well.
